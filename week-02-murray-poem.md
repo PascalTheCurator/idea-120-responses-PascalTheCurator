@@ -13,3 +13,7 @@ Unless you forget the final
 ![Timeline of each main characters appearances in the Marvel Cinematic Universe leading up to Avengers Endgame, forming a complicated interlaced web](avgtl.jpg)
 
 [A potential look into what the far future holds for the universe](https://youtu.be/uD4izuDMUQA?si=sKaZg5ULFVCEUP9K)
+  
+I very much so focused on parts of what I read instead of what I feel some of the main messages were,  
+but I also hate writing poetry, so this is the extent of what I can do.  
+It was very satisfying learning some of this stuff.
