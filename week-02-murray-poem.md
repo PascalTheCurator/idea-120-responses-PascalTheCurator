@@ -8,8 +8,8 @@ More paths created, more possibilities
 Yet all paths must lead somewhere
 Unless you forget the final 
 
-(fom.png)
+![Tricolor flag with the colors red, green, and blue symbolic of the three stages of terraforming mars, taken from the novels red mars, green mars, blue mars. This is the semi-unofficial flag of mars.](fom.png)
 
-(avgtl.jpg)
+![Timeline of each main characters appearances in the Marvel Cinematic Universe leading up to Avengers Endgame, forming a complicated interlaced web](avgtl.jpg)
 
-[Associated Video](https://youtu.be/uD4izuDMUQA?si=sKaZg5ULFVCEUP9K)
+[A potential look into what the far future holds for the universe](https://youtu.be/uD4izuDMUQA?si=sKaZg5ULFVCEUP9K)
